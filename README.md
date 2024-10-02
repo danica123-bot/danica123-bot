@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming 
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking for a friend
-- 📫 How to reach me : danicabalidio19@gmail.com 
+- 📫 How to reach me : you can just inbox me
 - ⚡ Fun fact: I chose IT cause  i got no choice 
 
 <!---
