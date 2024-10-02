@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @danica123-bot
 - 👀 I’m interested in Programming 
 - 🌱 I’m currently learning Java
-- 💞️ I’m looking for a friend
+- 💞️ I’m looking for a friend (preferably an introverted type)
 - 📫 How to reach me : you can just inbox me
 - ⚡ Fun fact: I chose IT cause  i got no choice 
 
